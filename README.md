@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Arjun Uddagiri:
 I' m currently working at Indian Servers
 
 
