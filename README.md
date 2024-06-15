@@ -1,5 +1,5 @@
 # 💫 Arjun Uddagiri:
-I' m currently working at Indian Servers
+Chief Executive Officer @Gloom_Dev
 
 
 ## 🌐 Socials:
